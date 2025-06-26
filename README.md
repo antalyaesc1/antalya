@@ -1,6 +1,6 @@
 # 🚀 Antalya Escort – Hızlı, Güvenli ve Gizli Görüşmeler 💬
 
-[![TANITIM İÇİN TELEGRAM üzerinden hemen iletişime geçin](assets/whatsapp-reklam.png)](https://t.me/alvannis)
+[![TANITIM İÇİN TELEGRAM üzerinden hemen iletişime geçin](reklam.png)](https://t.me/alvannis)
 
 ---
 
