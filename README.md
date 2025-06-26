@@ -1,6 +1,6 @@
 # 🚀 Antalya Escort – Hızlı, Güvenli ve Gizli Görüşmeler 💬
 
-**BURASI REKLAM ALANIDIR – MARKANIZI TANITMAK İÇİN** 👉 [Tıklayın](https://t.me/alvannis)
+**[BURASI REKLAM ALANIDIR](/reklam.png)** 👉 [Tıklayın](https://t.me/alvannis)
 
 ---
 
